@@ -1,1 +1,1 @@
-![rxprasetya](./bg-profile.png)
+![rxprasetya](./bg-profile.jpeg)
